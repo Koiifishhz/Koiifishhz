@@ -6,11 +6,11 @@ Some of my interests/fandoms!!
 
 Persona 3/4/5 ,
 
-Honkai: sr ,
+Honkai: sr // been playing since April 26, 2023 (1.5 yrs),
 
-Genshin impact ,
+Genshin impact // been playing since March 18 2021 (3 yrs) ,
 
-Project sekai ,
+Project sekai  // been playing since june 11th 2021 (3 yrs),
 
 Omori ,
 
