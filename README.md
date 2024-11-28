@@ -4,7 +4,7 @@ Some of my interests/fandoms!!
 
 ---*---
 
-Persona 3/4/5 ,
+Persona 3/4/5 , (mainly 4 hehe)
 
 Honkai: sr // been playing since April 26, 2023 (1.5 yrs),
 
@@ -24,7 +24,7 @@ Final fantasy ,
 
 Blue period ,
 
-Looking for friends btw!! I kinda suck at talking to people but i swear im cool! [smile] - persona fans PLEASE interact im desprate 
+‼️‼️Looking for friends btw!! I kinda suck at talking to people but i swear im cool! jus come up and talk me :))  [smile] - persona fans PLEASE interact im desprate 
 
 please do not copy my skins or take that much inspo!
 
