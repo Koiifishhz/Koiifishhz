@@ -26,6 +26,8 @@ Blue period ,
 
 ‼️‼️Looking for friends btw!! I kinda suck at talking to people but i swear im cool! jus come up and talk me :))  [smile] - persona fans PLEASE interact im desprate 
 
+im afk + offtab sometimes so i reccomend using whisper to grab my attention!
+
 please do not copy my skins or take that much inspo!
 
 ![download (1)](https://github.com/user-attachments/assets/64f32cef-e576-4e82-b8ed-0a7983671d3b)
