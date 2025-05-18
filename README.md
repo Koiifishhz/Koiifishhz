@@ -24,7 +24,7 @@ Final fantasy ,
 
 Blue period ,
 
-‼️‼️Looking for friends btw!! I kinda suck at talking to people but i swear im cool! jus come up and talk me :))  [smile] - persona fans PLEASE interact im desprate 
+‼️‼️Looking for friends btw!! I have horrible social skills even online so..  [smile] - persona fans PLEASE interact im desprate 
 
 im afk + offtab sometimes so i reccomend using whisper to grab my attention!
 
