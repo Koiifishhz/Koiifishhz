@@ -11,4 +11,3 @@ Yosuke Hanamura no.1 fan btw 👀
 
 im afk + offtab a LOT so i reccomend using whisper to grab my attention!
 
-![souyo🧡🩶](https://github.com/user-attachments/assets/cf217400-a570-4d32-b8d3-e4a5ba920216)
