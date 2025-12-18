@@ -4,24 +4,8 @@ interests/fandoms
 
 ---*---
 
-Persona 3/4/5 , 
-
-Honkai: sr // been playing since April 26, 2023 (1.5 yrs),
-
-Genshin impact // been playing since March 18 2021 (3 yrs) ,
-
-Project sekai  // been playing since june 11th 2021 (3 yrs),
-
-Omori ,
-
-Sk8 the infinity ,
-
-Final fantasy ,
-
-Blue period ,
+HUGE video game nerd.. i love persona, final fantasy etcetc!! im in a lot of fandoms so feel free to chat abt anything!
 
 im afk + offtab a LOT so i reccomend using whisper to grab my attention!
-
-please do not copy my skins or take that much inspo!
 
 ![download (1)](https://github.com/user-attachments/assets/64f32cef-e576-4e82-b8ed-0a7983671d3b)
